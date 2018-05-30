@@ -1,0 +1,1 @@
+urycie has³a do DB connection i to w sumie tyle
